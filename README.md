@@ -6,5 +6,5 @@
   
 🌱 I’m currently learning Java、Kotlin.   
   
-📫 How to reach me: 1182900548@qq.com  
+📫 How to reach me: Email: 1182900548@qq.com   QQ: 1182900548
   
